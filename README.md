@@ -1,2 +1,0 @@
-# NAGAMA
-I love frnds
